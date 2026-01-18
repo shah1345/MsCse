@@ -152,12 +152,3 @@
 
 ---
 
-✍️ *You can edit, add notes, and track your progress in this editor.*
-
-If you want:
-
-* ✅ 3 or 6 Months Study Routine
-* ✅ Previous Year Question Analysis
-* ✅ MCQ Practice Sheet
-
-Just tell me 👍
